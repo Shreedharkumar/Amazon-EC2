@@ -2,8 +2,8 @@
 
 # Author
 
-## Name: DODLA SUSMITHA
-## Register Number: 212224110016
+## Name: Shreedhar kumar k j
+## Register Number: 212224230265
 
 ## Objective
 
